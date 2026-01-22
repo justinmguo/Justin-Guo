@@ -9,6 +9,7 @@ ___
 
 Whether you're interested in exploring ideas, teaming up on a project, or simply chatting about tech, I'd love to hear from you!
 
-📧 Email: jguo1324@gmail.com
+Email: jguo1324@gmail.com
+
 LinkedIn : www.linkedin.com/in/justinmguoo
 
